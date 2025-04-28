@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @StupaBorobudur
 - 👀 I’m interested in Kakyoin ;)
 - 🌱 I’m currently learning how to live
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: she/her
+- 💞️ I’m looking to collaborate on living
+- 📫 How to reach me : 089652643508
+- 😄 Pronouns: Weaponized/Toaster
 - ⚡ Fun fact: New yorkers bite more often than sharks.
 
 <!---
